@@ -14,7 +14,7 @@
 
 ##### Contacts:
 
+###### Number: ‪(774) 257-5419‬
+###### Email: allenstechchannel@gmail.com
 
-
-###### Number: 
 
