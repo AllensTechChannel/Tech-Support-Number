@@ -1,4 +1,4 @@
-# **Computer Tips \& Tech Support**
+# **Tech Help and tips**
 
 ##### 
 
@@ -16,6 +16,7 @@
 
 ###### Number: ‪(774) 257-5419‬
 ###### Email: allenstechchannel@gmail.com
+
 
 
 
